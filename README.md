@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Chathurya-Adapa
-- 👀 I’m interested in app development
+- 👀 I’m passionated about new things and love sharing knowledge
 - 🌱 I’m currently 3rd year cse
 - 📫 How to reach me linkedin.com/in/adapa-chathurya-7094771b6
 
