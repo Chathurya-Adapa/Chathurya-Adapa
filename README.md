@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Chathurya-Adapa
 - 👀 I’m passionated about new things and love sharing knowledge
-- 🌱 I’m currently 3rd year cse
+- 🌱 I'm an Software Enginer Intern an IBM ISDL
 - 📫 How to reach me linkedin.com/in/adapa-chathurya-7094771b6
 
 <!---
